@@ -1,1 +1,0 @@
-# wijele.github.io
